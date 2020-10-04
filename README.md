@@ -4,7 +4,7 @@
 - If you fail the grant times for the things you care about, you´ll forget why you even fighting at all
 **No amount of knowledge is enough knowledge, never stop learning**. 🧠
 
-![](https://komarev.com/ghpvc/?username=rulo-code&color=green)
+![](https://komarev.com/ghpvc/?username=Zaracl&color=green)
 
 
 <p align = "center">
